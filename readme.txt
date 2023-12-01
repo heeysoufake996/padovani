@@ -5,7 +5,7 @@ to give credit to someone who created the template, hit me up on Discord!
 
 Discord: heeysoufake996
 
-Byeee
+Byeee, Btw, I'm Brazilian...
 
 Templates i Used:
 
